@@ -1,2 +1,2 @@
 # wielgusm.github.io
-webpage
+nothing here but check out [wielgus.info](http://wielgus.info)
